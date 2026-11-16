@@ -1,1 +1,1 @@
-mainen is jungkook
+dynamite
